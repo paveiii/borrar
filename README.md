@@ -4,3 +4,7 @@ Los skibidis se pusieron toilet ayy soy tan skibidi una mano arriba todos los sk
 
 
 Me duelen las tripas
+
+Obama obama obama
+
+asdddsdasdasdasdasdasd
